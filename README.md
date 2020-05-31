@@ -1,2 +1,0 @@
-# doTERRA
-Essential Oils
